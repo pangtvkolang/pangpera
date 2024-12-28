@@ -4,10 +4,6 @@
 Earn money by sharing your internet connection. Sign up now and start earning! Join here to get bonuses.
 [Sign up here](https://pawns.app/?r=1576698)
 
-### EarnApp
-Make money effortlessly by sharing your unused internet bandwidth. Sign up today and receive bonuses.
-[Sign up here](https://earnapp.com/i/bDUH55wN)
-
 ### Repocket
 Get paid for your unused internet data. It’s simple and easy! Join now to get bonuses.
 [Sign up here](https://link.repocket.com/eHsk)
